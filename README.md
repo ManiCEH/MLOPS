@@ -4,3 +4,7 @@
  ###############################################
 
  I don't need to change myself for anyone. Thinks will change for me over the period of time. I don't need to worried about anything. 
+
+ ###### 
+ Knowledge is power
+ #########
